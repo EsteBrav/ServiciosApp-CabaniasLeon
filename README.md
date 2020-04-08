@@ -12,3 +12,6 @@ esteban0.8@hotmail.com
 
 María Fernanda 
 fernanda.alvarez.arenas@gmail.com
+
+Juan Antonio Miguel Chavez
+juanantoniomiguelchavez@hotmail.com
